@@ -38,9 +38,8 @@ Ek wil ddjjou laat lag ... maar mitchibichi<br />
 Jy... kan my... laaste Rolo kry...<br />
 Jy... kan my... laaste Rolo kry...<br />
 
-#### OUTRO:<br />
+#### OUTRO (Guitar):<br />
 Jy... kan maar... my laaste Rolo kry...<br />
-
 
 ---
 
