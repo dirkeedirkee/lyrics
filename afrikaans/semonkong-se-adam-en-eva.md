@@ -1,40 +1,49 @@
-INTRO (Guitar)
 
-Jy's my oogappel
-Jy's die kersie op die koek
-Jy's die koper somer maan wat my hart so besoek
+### Semonkong's Adam & Eva
 
-Jy's die twee suikers in my koffie 
-Jy's die buddy aan my sy
-Jy's die mooiste waterval net vir my
+---
 
-CHORUS
-Ek wil ddjjou terg ... maar mitchibichi
-Ek wil ddjjou nat gooi ... maar mitchibichi
-Ek wil ddjjou laat lag ... maar mitchibichi
-Jy... kan my... laaste Rolo kry...
+#### INTRO (Guitar):<br />
 
-Jy's my naartjiepit
-Jy's die frontline vir my liefdesflooie
-Jy's die vrou waarvan ek lees in die 10 gebooie
+#### BRIDGE 1:<br />
+Jy's my oogappel<br />
+Jy's die kersie op die koek<br />
+Jy's die koper somer maan wat my hart so besoek<br />
 
-Jy's my liggie wat brand
-Jy is die Strepsil vir die my seer keel
-Jy's die enigste een wat jou kos met my wil deel
+#### BRIDGE 2:<br />
+Jy's die twee suikers in my koffie<br />
+Jy's die buddy aan my sy<br />
+Jy's die mooiste waterval net vir my<br />
 
-CHORUS
-Ek wil ddjjou terg ... maar mitchibichi
-Ek wil ddjjou nat gooi ... maar mitchibichi
-Ek wil ddjjou laat lag ... maar mitchibichi
-Jy... kan my... laaste Rolo kry...
-Jy... kan my... laaste Rolo kry...
+#### CHORUS 1:<br />
+Ek wil ddjjou terg ... maar mitchibichi<br />
+Ek wil ddjjou nat gooi ... maar mitchibichi<br />
+Ek wil ddjjou laat lag ... maar mitchibichi<br />
+Jy... kan my... laaste Rolo kry...<br />
 
-OUTRO
-Jy... kan maar... my laaste Rolo kry...
+Jy's my naartjiepit<br />
+Jy's die frontline vir my liefdesflooie<br />
+Jy's die vrou waarvan ek lees in die 10 gebooie<br />
+
+Jy's my liggie wat brand<br />
+Jy is die Strepsil vir die my seer keel<br />
+Jy's die enigste een wat jou kos met my wil deel<br />
+
+CHORUS<br />
+Ek wil ddjjou terg ... maar mitchibichi<br />
+Ek wil ddjjou nat gooi ... maar mitchibichi<br />
+Ek wil ddjjou laat lag ... maar mitchibichi<br />
+Jy... kan my... laaste Rolo kry...<br />
+Jy... kan my... laaste Rolo kry...<br />
+
+OUTRO<br />
+Jy... kan maar... my laaste Rolo kry...<br />
 
 
+---
 
-
-Meta:
-* Mitsubishi Sponsored volunteer/mission trip to Semonkong
+Plek: 
+* Waar: Semonkong, Lesotho<br />
+* Wat: Mitsubishi sponsored volunteer/mission trip<br />
+* Datum: ...<br />
 
